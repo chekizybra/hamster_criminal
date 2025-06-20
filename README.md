@@ -1,1 +1,1 @@
-hamster hamster criminal
+hamster hamster hamster criminal
